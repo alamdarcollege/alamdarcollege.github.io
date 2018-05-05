@@ -1,1 +1,0 @@
-# alamdarcollege.github.io
